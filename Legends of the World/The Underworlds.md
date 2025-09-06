@@ -1,6 +1,0 @@
-Throughout my time in Ethria, there had been ideas of worlds that coexist with our own world. Not to be confused with the Underdark, Underworlds are worlds that are said to exist under our own. The greatest heroes of Ethria have said they have traversed outside the boundaries of our world and crossed into the Underworlds. Therefore, crossing to an Underworld is seen as a legendary feat. The most well-known Underworld is the Underworld of Ethereal Shadow. Many of the spells of the world have the ability to gaze into the Underworld of Ethereal Shadow. Some that even transport you into it. It is said to be a world that mimics our own with the only difference being that the world, as a whole, is covered in shadow with little signs of life existing in it. Other less well-known Underworlds are the Underworld of Astral Cosmos, the Underworld of Spirits, and what is simply known as the World of Gods. It is not exactly known how to cross into these listed Underworlds or if it even possible to cross into one, let alone the idea that these Underworlds even exist. Research is still being conducted on being able to "Worldshift" into the Underworlds. 
-
-
-
-
-|                                                                                                                    -Excerpt from "*Legends of the World*" by Rybak Edsall
