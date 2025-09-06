@@ -1,1 +1,0 @@
-The Elder God of Order. Ryth is described to appear as an ancient dragon. He is responsible for creating the Goddess of Justice Helmin and the God of Light Aluminos. He is believed to be behind every law in the realm. Those who are unwise enough to ignore the laws will be subjected to the wrath of the ancient dragon elder god. He loathes his twin brother Rheul. 

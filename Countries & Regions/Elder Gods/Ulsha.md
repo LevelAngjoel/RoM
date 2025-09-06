@@ -1,1 +1,0 @@
-The Elder Goddess of Life and Death
