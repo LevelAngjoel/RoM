@@ -1,0 +1,1 @@
+In old scripture, a story about a figure in black who appears to claim souls has been a worldwide rumor. While most people have claimed to seen The Messenger, there has not been any definitive proof of its existence.

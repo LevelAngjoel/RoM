@@ -1,0 +1,1 @@
+The Elder God of Chaos. Rheul is described to appear as an ancient dragon. He is responsible for creating the God of War Amberos and Goddess of Darkness Shamak. Many misfortunes are believed to be associated with Rheul. He loathes his twin brother Ryth.
